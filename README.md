@@ -7,3 +7,11 @@
 
 # Figma
 [Protótipo](https://www.figma.com/file/j0XSvaCJzpOODpHskzNsQ9/Revista-Fatec?node-id=208%3A1029)
+
+# Site da Revista:
+https://revista-fatec-sorocaba88140.nicepage.io
+
+# Capa da Revista:
+https://www.canva.com/design/DAFAgbrpmhw/3YePXGkZ4Erur4vGjqzuIQ/edit?utm_content=DAFAgbrpmhw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+
