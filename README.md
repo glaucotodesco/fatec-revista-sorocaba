@@ -12,6 +12,6 @@
 https://revistafatecsorocaba.nicepage.io
 
 # Capa da Revista:
-https://www.canva.com/design/DAFAgbrpmhw/3YePXGkZ4Erur4vGjqzuIQ/edit?utm_content=DAFAgbrpmhw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+[Capa](https://www.canva.com/design/DAFAgbrpmhw/3YePXGkZ4Erur4vGjqzuIQ/edit?utm_content=DAFAgbrpmhw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 
